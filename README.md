@@ -1,1 +1,0 @@
-# skgcmst.github.io
